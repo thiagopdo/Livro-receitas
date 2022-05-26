@@ -11,6 +11,7 @@
 -   2 colheres de sopa de ketchup
 -   Champignon a gosto
 -   1 lata de creme de leite sem soro
+-   1 lata de creme de leite sem soro
 
 ## Modo de Preparo - Strogonoff de frango
 
